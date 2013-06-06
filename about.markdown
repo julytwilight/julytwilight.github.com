@@ -13,6 +13,6 @@ Github
 
 or follow 
 
-> weibo [@neatpath](http://weibo.com/3504093051)
+> [@neatpath](http://weibo.com/3504093051)
 
 to reach me
