@@ -13,6 +13,6 @@ Github
 
 or follow 
 
-> [@2子仇杀队](http://weibo.com/2146096683)
+> weibo [@neatpath](http://weibo.com/3504093051)
 
 to reach me
